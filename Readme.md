@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @SinghHarsh14
+- 👀 I’m interested in coding, photography and digital art
+- 🌱 I’m currently learning machine learning
+- 📫 How to reach me @singhharsh.14 on Instagram
